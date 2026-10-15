@@ -1,2 +1,2 @@
-Entrée visiteurs : porte principale. Présenter son invitation à 
+Entrée visiteurs : porte principale. Présenter son invitation à ddd
 
