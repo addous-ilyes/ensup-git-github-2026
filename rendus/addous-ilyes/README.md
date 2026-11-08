@@ -1,5 +1,6 @@
-Entrée gratuite
+# Forum des associations ENSUP
+Un guide pour préparer sa première visite sur le campus.
 
-Inscription gratuite
+Entrée gratuite. Inscription sur place.
 
-Accueil des visiteurs à partir de 9h00
+Accueil des visiteurs à partir de 09h00.
